@@ -1,1 +1,1 @@
-# TinghuaStudio
+# TinghuaStudioAI软件
