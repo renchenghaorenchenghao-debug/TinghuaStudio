@@ -1,1 +1,0 @@
-# TinghuaStudioAI软件
